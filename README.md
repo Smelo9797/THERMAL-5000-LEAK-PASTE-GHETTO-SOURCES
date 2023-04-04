@@ -5,12 +5,18 @@ posted this when thermal was sleeping, hope this is a nice thing for u to wake u
 
 love, smelo :))) 
 
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
-https://cdn.discordapp.com/attachments/1092910838039445504/1092919247409270794/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
+https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/THERMAL_SHIT.rar
 
+
+
+password to the rar is : thermalpasta
 
 
