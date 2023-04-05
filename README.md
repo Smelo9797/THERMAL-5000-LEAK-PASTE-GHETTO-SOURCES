@@ -19,4 +19,4 @@ https://cdn.discordapp.com/attachments/1092910838039445504/1092921897290829994/T
 
 password to the rar is : thermalpasta
 
-
+HE has a Alt discord account named stormy#7649, he scams people on that discord account
